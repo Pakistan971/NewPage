@@ -1,1 +1,1 @@
-https://itsmeprinceyt.github.io/itsmeprinceyt-website/
+https://github.com/Pakistan971/NewPage
